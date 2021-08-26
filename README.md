@@ -1,5 +1,5 @@
-### Hi my name is Umut and im a Turkish coder/reverse engineer.
-### My Discord : 
+### Hi my name is Umut and im interested in coding and game-hacking ( for educational purposes only ) 
+### My Discord : Atilla the Hun#0705
 ![](https://c0.wallpaperflare.com/preview/536/467/776/greece-kifisia-computer-reverse-engineering.jpg)
 <!---
 UmutRevaxsy/UmutRevaxsy is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
